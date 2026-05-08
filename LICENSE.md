@@ -1,4 +1,4 @@
-
+secure Scripts for hypershot is the best hypershot Script, featuring one-hit kill and anti-ban. Safe and powerful for all your needs.
 
 
 
